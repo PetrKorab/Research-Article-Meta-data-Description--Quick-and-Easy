@@ -1,1 +1,1 @@
-# Research-Article-Meta-data-Description-Made-Quick-and-Easy
+# Research Article Meta-data Description Quick & Easy
